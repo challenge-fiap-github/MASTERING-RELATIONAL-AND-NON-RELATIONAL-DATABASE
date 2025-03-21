@@ -3,7 +3,7 @@
 --
 
 ## 📌 Link  
-**MIRO IDEIAS E ORGANIZAÇÃO:** [Clique aqui para acessar o board](https://miro.com/welcomeonboard/UnBzdHJIQXZyV3lnQ1BubkhHZHpIY1luMXByT215RG9FR1B6Zkl4eVBmbDVBa3V6WnFaTStHNWk0MzFMTGRIWGNrbHBsS3BJV3VRWHVUbEd1UlBDUnJUMHdwT0dzNmZFazBScmFROGtteDNGaVRGMGdoMnpFczc4K3pMd2JTTXRyVmtkMG5hNDA3dVlncnBvRVB2ZXBnPT0hdjE=?share_link_id=391102710576)
+**MIRO IDEIAS E ORGANIZAÇÃO:** [Clique aqui para acessar o board](https://miro.com/app/board/uXjVLwX7Ul0=/?share_link_id=229877203937)
 
 --
 
